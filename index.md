@@ -11,6 +11,6 @@ Hi, I'm PortalMaster4678. You can follow me on [Scratch](https://scratch.mit.edu
 
 See all my projects on Scratch on this link: [https://scratch.mit.edu/users/PortalMaster4678/projects/](https://scratch.mit.edu/users/PortalMaster4678/projects/).
 
-### Support or Contact
+### What's Next?
 
 I'll be making more projects on Scratch. 
